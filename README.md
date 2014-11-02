@@ -1,0 +1,1 @@
+ I designed it in order to provide a platform for convenient uploading and sharing my own videos by my computers and my mobile devices. Now this website is still in testing. I like website development. I like the feels to custom my personal zoom. It is  interesting and meaningful to me and my life.
